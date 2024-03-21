@@ -9,7 +9,7 @@ I love to evolve
 * 🌍  I'm based in Planet Earth
 * 🖥️  See my portfolio at [See my portfolio](http://hypebeast18)
 * ✉️  You can contact me at [https://t.me/hypebeast18](mailto:https://t.me/hypebeast18)
-* 🧠  I'm learning Web3, Next
+* 🧠  I'm learning Web3
 * 🤝  I'm open to collaborating on Interesting projects or something special
 * ⚡  i'm secretly Spiderman... But don't tell anyone
 
